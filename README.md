@@ -50,7 +50,7 @@ Applications of big data in the travel industry include:
 
 Conclusion:
 With the advent of new methods for booking, organizing, and experiencing travel, information technology has completely changed the travel and tourism sector. The IT sector is constantly improving the general effectiveness and ease of the business, from AI-driven customer support to blockchain-secured payments and environmentally friendly solutions. Travelers will have more engaging, safe, and customized experiences as these technologies advance, and tourism companies will gain from increased consumer interaction and operational effectiveness.
-You can visit our site: Applyatjob.com
- https://applyatjob.com/hiring-employee
+You can visit our site: Applyatjob.com<br>
+ https://applyatjob.com/hiring-employee<br>
 
 https://applyatjob.com/jobs
